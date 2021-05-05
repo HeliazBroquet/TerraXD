@@ -6,6 +6,5 @@
 - 📫 How to reach me : terraxd.contact@gmail.com
 
 <!---
-TerraXD/TerraXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Hey There My Friend,i Translate Stuff For Free Just Ask
 --->
