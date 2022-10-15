@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Spanish
 - 💞️ I’m looking to collaborate on Everything, ABSOLUTELY EVERYTHING
 - 🎈 I Translate For Free,I Don't Want Money
-- 📫 How to reach me : terraxd.contact@gmail.com
+- 📫 How to reach me : heliaz@broquet.ovh
 
 
 
